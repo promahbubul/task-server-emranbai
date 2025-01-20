@@ -1,0 +1,1 @@
+I am passionate about your wonderful work history, I look forward to collaborating with all of you and contributing to your jobs. I'll work for free. Please feel free to reach out if you’d like to connect or share any advice as I settle into my new role.
